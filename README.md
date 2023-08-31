@@ -2,3 +2,4 @@ Olá! Meu nome é Larissa. Eu estou no Primeiro Ano do Ensino Médio e estudo no
 
 
 
+![](https://media.tenor.com/C5ymPCUgI-UAAAAM/tangled.gif)
